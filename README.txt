@@ -1,1 +1,1 @@
- September 9, Thursday, 2021.
+ September 9, Thursday, 2021
